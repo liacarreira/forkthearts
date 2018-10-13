@@ -19,7 +19,7 @@ what we are longing for,
 what we are dreaming of
 and what we need
 
-i am interested in what this is for you, 
+I am interested in what this is for you, 
 and I am interested in the reality of my fantasies.
 
 we are trying to be softer with each other
