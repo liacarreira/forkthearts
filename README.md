@@ -1,12 +1,13 @@
 # forkthearts
 Diskurs workshop: Fork the Arts 
-# ![alt text](https://theofficeofalinalupu.com/site/assets/files/1086/43400807_10155621865182382_1815683938186690560_n.591x0-is.jpg "The struggle")
-
-
-
 
 No Workshop a Ritual
 A Gathering
+
+thank you for being here!
+
+# ![alt text](https://theofficeofalinalupu.com/site/assets/files/1086/43400807_10155621865182382_1815683938186690560_n.591x0-is.jpg "The struggle")
+
 
 hi everyone* and a very big welcome to DISKURS 2018 NO SERVICE…
 
@@ -21,7 +22,7 @@ and what we need
 i am interested in what this is for you, 
 and I am interested in the reality of my fantasies.
 
-we are trying to b softer with each other
+we are trying to be softer with each other
 and we are trying to embrace failure 
 
 as we understood that inventing takes time, space and patience
@@ -32,4 +33,4 @@ so what you see is that we got to
 in a solidarity of services
 that we are no inviting you into
 
-thank you for being here. 
+
