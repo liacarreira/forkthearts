@@ -7,3 +7,29 @@ Diskurs workshop: Fork the Arts
 
 No Workshop a Ritual
 A Gathering
+
+hi everyone* and a very big welcome to DISKURS 2018 NO SERVICE…
+
+I am looking forward to a week full of space
+space for anything that we can 
+and cannot imagine
+but that sets into spirit
+what we are longing for, 
+what we are dreaming of
+and what we need
+
+i am interested in what this is for you, 
+and I am interested in the reality of my fantasies.
+
+we are trying to b softer with each other
+and we are trying to embrace failure 
+
+as we understood that inventing takes time, space and patience
+to get rid of a vocabulary that doesn’t serve us anymore
+to get rid of making sense and making more
+
+so what you see is that we got to
+in a solidarity of services
+that we are no inviting you into
+
+thank you for being here. 
