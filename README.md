@@ -1,5 +1,6 @@
 # forkthearts
 Diskurs workshop: Fork the Arts 
+forktheartsforkforkk forktheheartsheartshearts https://www.youtube.com/watch?v=eGUsqIPurNQ forkinmyheartFORK 
 
 
 🧙‍♂️👑🦸‍♀️🌈🍾🎤🎭🚀🔮💊🔭🧸☢🆗🆒💎
@@ -8,13 +9,13 @@ Diskurs workshop: Fork the Arts
 # ![alt text](https://theofficeofalinalupu.com/site/assets/files/1086/43400807_10155621865182382_1815683938186690560_n.591x0-is.jpg "The struggle")
 
 
+love you all
 
 
 No Workshop a Ritual
 A Gathering
 
-[we are looking at who's here](http://diskursfestival.de/people)
-[i'm here too](https://www.facebook.com/jmehling)
+
 ![alt text](https://github.com/Diskursfestival/forkthearts/blob/master/no%20internet.PNG)
 
 
