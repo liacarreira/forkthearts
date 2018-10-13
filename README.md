@@ -13,6 +13,10 @@ Diskurs workshop: Fork the Arts
 No Workshop a Ritual
 A Gathering
 
+
+![alt text](https://github.com/Diskursfestival/forkthearts/blob/master/no%20internet.PNG)
+
+
 hi everyone* and a very big welcome to DISKURS 2018 NO SERVICE…
 
 I am looking forward to a week full of space
