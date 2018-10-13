@@ -15,6 +15,9 @@ love you all
 No Workshop a Ritual
 A Gathering
 
+[we are looking at who's here](http://diskursfestival.de/people)
+[i'm here too](https://www.facebook.com/jmehling)
+
 
 ![alt text](https://github.com/Diskursfestival/forkthearts/blob/master/no%20internet.PNG)
 
