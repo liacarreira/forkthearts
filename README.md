@@ -1,4 +1,4 @@
-# forkthearts
+# fork the arts
 Diskurs workshop: Fork the Arts 
 
 No Workshop a Ritual
