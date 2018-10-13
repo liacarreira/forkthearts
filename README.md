@@ -12,7 +12,7 @@ Diskurs workshop: Fork the Arts
 
 No Workshop a Ritual
 A Gathering
-
+[we are looking at who's here](http://diskursfestival.de/people)
 
 ![alt text](https://github.com/Diskursfestival/forkthearts/blob/master/no%20internet.PNG)
 
