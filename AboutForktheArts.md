@@ -7,6 +7,6 @@ that be possible facing the competitive cultural businesses and art markets many
 within? which structures suit us* better? how do we* organize while being weary from precariousness?
 
 **Fork the Arts!** invites you to appropriate GitHub for other purposes, making use of the platform for collaborate practices in
-the Arts. We invite you to collaborate in this collective writting and editathon to discuss, propose, experiment on 
+the Arts. We invite you to collaborate in this collective writing and editathon to discuss, propose, experiment on 
 DISKURS 2018 Festival theme and questions.
 
